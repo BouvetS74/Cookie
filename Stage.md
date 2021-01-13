@@ -9,6 +9,9 @@ Réalisation
 - les uns des autres; ils grandiront à la cuisson.
 - Enfourner pour 10 minutes de cuisson.
 
+
 Dresser un plat avec les cookies réalisés
+
+Et bon appétit !
 
 
